@@ -4,7 +4,6 @@
 * 2 large eggs
 * 3/4 cup milk
 * 1/2 cup water
-
 * 3 tbsp melted butter
 * 2 1/2 tbsp sugar
 * 1 tsp vanilla
