@@ -11,9 +11,10 @@
 * 1 tablespoon chopped cilantro
 * 1 clove garlic, minced
 
-In a large bowl place the scooped avocado pulp and lime juice, 
-toss to coat. Drain, and reserve the lime juice, after all of the 
-avocados have been coated. Using a potato masher add the salt, 
+In a large bowl place the scooped avocado pulp 
+and lime juice, toss to coat. Drain, and reserve 
+the lime juice, after all of the avocados have been coated. 
+Using a potato masher add the salt, 
 cumin, and cayenne and mash. Then, fold in the onions, jalapeno, 
 tomatoes, cilantro, and garlic. Add 1 tablespoon of the reserved 
 lime juice. 
