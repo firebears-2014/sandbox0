@@ -1,7 +1,6 @@
-sandbox0
-========
+# sandbox0
 
-Sample repository for learning git.
+Sample repository for learning Git.
 
 Make any changes you like on this repository!!
 
