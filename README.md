@@ -2,5 +2,5 @@
 
 Sample repository for learning Git.
 
-Make any changes you like on this repository!!
+Make all the changes you like on this repository!!
 
