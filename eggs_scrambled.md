@@ -2,6 +2,6 @@
 
 * Eggs
 
-1. Scramble them.
-2. Cook them.
+1. Scramble the eggs.
+2. Cook the eggs.
 3. Eat.
