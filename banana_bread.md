@@ -17,4 +17,4 @@ Mix the wet with the dry.
 Bake until the internal temperature goes to 210 degrees. 
 Usually between 50 to 90 minutes.
 
-Makes one loaf.  (Keith)
+Makes one loaf.  (Keith really likes this)
