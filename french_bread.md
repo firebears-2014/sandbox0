@@ -1,6 +1,6 @@
 # Crusty French Bread
 
-* 500g water (2 cups)
+* 500g water (2 cups)  !!!
 * 2 tbsp dry yeast
 * 1 tbsp malt syrup
 * 780g AP flour
