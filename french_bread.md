@@ -6,7 +6,7 @@
 * 780g AP flour
 * 2 1/2 tsp salt
 
-1. Mix water, yeast, and malt.  Let sit for a couple hours.
+1. Mix water, yeast, and malt.  Let sit for a couple hours...
 2. Mix everything in mixer.  Add flour until dough pulls away from the side of the bowl.
 3. Let rise overnight in the refrigerator....
 4. Knead again.  Form into loaves.  Proof in a warm oven.
