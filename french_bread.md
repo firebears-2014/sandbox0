@@ -3,7 +3,7 @@
 * 500g water (2 cups)
 * 2 tbsp dry yeast
 * 1 tbsp malt syrup
-* 780g AP Flour
+* 780g AP flour
 * 2 1/2 tsp salt
 
 1. Mix water, yeast, and malt.  Let sit for a couple hours.
