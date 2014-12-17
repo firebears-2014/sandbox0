@@ -1,7 +1,7 @@
 Sourdough Pretzels
 ===================
 
-- 340 g Sourdough starter
+- 340 g Sourdough starter  (Keith)
 - 230 g water (1 cup)
 - 2 tbsp butter
 - 35 g sugar
