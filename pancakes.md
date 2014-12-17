@@ -1,4 +1,4 @@
-# Buttermilk Pancakes
+# Buttermilk Pancakes For a Yield of 7-8
 
 * 150g AP Flour
 * 50g whole wheat flour
