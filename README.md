@@ -30,6 +30,4 @@ Debate is fun.
 
 #H2WOAH!(srsly, don't ask)
 
-Narcissists need resources too. 
-
-Thanks.
+Narcissists need resources too!
