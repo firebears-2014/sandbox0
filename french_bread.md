@@ -11,5 +11,4 @@
 3. Let rise overnight in the refrigerator....  .....
 4. Knead again.  Form into loaves.  Proof in a warm oven.
 5. Bake at 435 degrees. After 15 minutes, insert a thermometer.  Bake until internal temperature is 200 degrees.
-6. Burst into flames.
-7... Enjoy! :3
+

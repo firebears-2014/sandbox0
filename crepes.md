@@ -1,16 +1,15 @@
-# Crepes A La Jacob
+# Crepes
 
-* 1 ton flour
-* 2 Dozen large eggs
-* 3/4 cup soy milk
-* 1/2 cup Communism
-* 3 tbsp melted internets
+* 1 cup flour
+* 2 large eggs
+* 3/4 cup milk
+* 1/2 cup water
+* 3 tbsp melted butter
 * 2 1/2 tbsp sugar
-* 1 tsp MURICA
+* 1 tsp vanilla
 
-mince everything for 15 minutes.  Leave in washing machine overnight.
+Blend everything for 10 seconds.  Leave in refrigerator overnight.
 
-Heat non-stick pan to relentless heat.  Pan the butter...
+Heat non-stick pan to low-medium heat.  Butter the pan...
 
-Use 12 cup batter in a 1/2 inch pan.
-
+Use 1/2 cup batter in a 12 inch pan.

@@ -19,8 +19,3 @@ Usually between 50 to 90 minutes.
 
 Makes one loaf.
 
-Dude what's AP flour?
-
-Edit: ohhhhh... all purpose.
-
-Would've been really awkward if it was some sort of advanced placement course.
