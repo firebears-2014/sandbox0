@@ -1,0 +1,14 @@
+# Easy Salsa
+
+* 2 (14.4 ounce) cans diced tomatoes
+* 1 jalapeno chile, seeds and ribs removed
+* 1/2 yellow onion, quartered
+* 1/2 bunch cilantro leaves
+* 1 tablespoon
+* fresh lemon juice, or to taste
+* salt to taste
+
+Blend in a blender
+
+Let rest half an hour before eating
+
