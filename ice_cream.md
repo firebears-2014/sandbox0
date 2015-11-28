@@ -6,5 +6,5 @@
 * 2 tsp vanilla extract
 * 2 tbsp peach preserves
 
-Pour into ice cream freezer
-Freeze!!
+1. Pour into ice cream freezer. 
+2. Freeze!!
