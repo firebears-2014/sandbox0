@@ -4,11 +4,11 @@
 * 50g whole wheat flour
 * 1 tsp baking soda
 * 1 tsp baking powder
-* 1/2 tsp salt
+* 1/3 tsp salt
 * 25 g oil
-* 3 tbsp sugar
-* 60g sour cream
-* 450g buttermilk
+* 3 1/4 tbsp sugar
+* 67g sour cream
+* 458g buttermilk
 * 2 eggs, separated
 
 
