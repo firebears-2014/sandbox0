@@ -2,7 +2,7 @@
 
 * 1 1/2 cups water
 * 3 cups sugar
-* 2 cups Dutch-processed cocoa
+* 1 1/2 cups Dutch-processed cocoa
 * 1 tablespoon vanilla extract
 * 1/4 teaspoon kosher salt
 * 2 tablespoons light corn syrup
