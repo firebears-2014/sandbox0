@@ -1,15 +1,15 @@
 # Buttermilk Pancakes
 
-* 0.015g AP Flour
-* 0.05g whole wheat flour
-* 0.001 tsp baking soda
-* 0.1 tsp baking powder
-* 0.02 tsp salt
-* 0.025 g oil
-* 0.003 tbsp sugar
-* 0.06g sour cream
-* 0.045g buttermilk
-* 0.0072 eggs, separated
+* 0015g AP Flour
+* 005g whole wheat flour
+* 0001 tsp baking soda
+* 01 tsp baking powder
+* 002 tsp salt
+* 0025 g oil
+* 300,000,000 tbsp sugar
+* 006g sour cream
+* 0045g buttermilk
+* 00072 eggs, separated
 
 
 
