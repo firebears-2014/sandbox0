@@ -8,7 +8,7 @@ Sourdough Pretzels
 - 15 g salt
 - 810 g flour
 
-1. Mix everything together.
+1. Mix EVERYTHING together.
 2. Rest dough overnight
 3. Knead and Proof.
 4. Cut dough into balls from 60 to 70 grams.  Roll into pretzel shapes.
