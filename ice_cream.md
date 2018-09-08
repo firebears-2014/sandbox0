@@ -6,3 +6,5 @@
 * 2 tsp vanilla extract
 * 2 tbsp peach preserves
 
+1. Mix everything
+2. Freeze in an ice cream maker
