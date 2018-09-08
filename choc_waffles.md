@@ -10,6 +10,6 @@
 * 2 oz unsalted butter (melted)
 * 16 oz buttermilk
 
-Mix dry.  Mix wet.  Combine.
+Mix dry and Mix wet and Combine.
 
 Rest batter at least 5 minutes before using.
