@@ -18,7 +18,6 @@ Mix the wet with the dry.
 Preheat oven to 350 degrees
 
 Bake until the internal temperature goes to 210 degrees. 
-Usually between 50 to 90 minutes.
+(Usually between 50 to 90 minutes)
 
-
-Eat Plain
+Eat with frog juices and crunchy lizard skin
