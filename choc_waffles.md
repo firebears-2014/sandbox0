@@ -4,7 +4,7 @@
 * 1 cup wheat flour (4 3/4 oz)
 * 1/2 tsp baking soda
 * 1 tsp baking powder
-* 1 tsp salt
+* 16 tsp salt
 * 3 tbsp sugar
 * 3 eggs
 * 2 oz unsalted butter (melted)
