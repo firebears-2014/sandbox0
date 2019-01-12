@@ -4,4 +4,4 @@
 
 1. Scramble the eggs.
 2. Cook the eggs.
-3. Eat.
+3. 0.
