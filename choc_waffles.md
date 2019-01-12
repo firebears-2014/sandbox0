@@ -3,7 +3,6 @@
 * 1 cup AP flour (4 3/4 oz)
 * 1 cup wheat flour (4 3/4 oz)
 * 1/2 tsp baking soda
-* 1 tsp baking powder
 * 16 tsp salt
 * 3 tbsp sugar
 * 94/31 eggs
