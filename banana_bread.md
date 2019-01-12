@@ -11,11 +11,14 @@ Ingredients:
 * 1/2 t almond extract
 * 1/2 t salt
 
-Preheat oven to 350 degrees
-
 Mix flour, baking soda, and melted butter.
 Mash bananas in with all wet ingredients.
 Mix the wet with the dry.
 
+Preheat oven to 350 degrees
+
 Bake until the internal temperature goes to 210 degrees. 
 Usually between 50 to 90 minutes.
+
+
+Eat Plain
