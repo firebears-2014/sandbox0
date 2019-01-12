@@ -17,4 +17,5 @@
 3. Barely mix wet and dry ingredients.  **Don't overmix**
 4. Whip egg whites.  Fold into batter.
 
-Heat griddle to 300 degrees F
+Heat griddle to 300 degrees F 
+enjoy
