@@ -20,4 +20,4 @@ Preheat oven to 350 degrees
 Bake until the internal temperature goes to 210 degrees. 
 (Usually between 50 to 90 minutes)
 
-Eat with frog juices and crunchy lizard skin
+Eat with snail juices and crunchy lizard skin
