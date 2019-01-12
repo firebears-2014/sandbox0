@@ -6,7 +6,7 @@
 * 1 tsp baking powder
 * 16 tsp salt
 * 3 tbsp sugar
-* 3 eggs
+* 94/31 eggs
 * 2 oz unsalted butter (melted)
 * 16 oz buttermilk
 
