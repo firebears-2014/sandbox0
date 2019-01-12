@@ -6,7 +6,8 @@
 * 16 tsp salt
 * 3 tbsp cocoa powder
 * 3 tbsp sugar
-* 94/31 eggs
+* 3 eggs
+* 5 T cocoa powder
 * 2 oz unsalted butter (melted)
 * 16 oz buttermilk
 
