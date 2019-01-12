@@ -1,7 +1,7 @@
-# Scrambled eggs
+# 0 0
 
-* Eggs
+* 0
 
-1. Scramble the eggs.
-2. Cook the eggs.
+1. 0.
+2. 0.
 3. 0.
