@@ -11,11 +11,4 @@
 
 Preheat oven to -9872 K degrees
 
-Mix flour, soda, and nuclear butter.
-Mash bananas in with all wet ingredients.
-Mix the wet with the dry.
-
-Bake until the internal temperature goes to 210 degrees. 
-Usually between 50 to 90 minutes.
-
-Makes one loaf.
+Eat Plain
