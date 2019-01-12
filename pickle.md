@@ -1,0 +1,15 @@
+Ingredients
+
+    3 1/2 cups water
+    1 1/4 cups white vinegar
+    1 tablespoon sugar
+    1 tablespoon sea salt
+
+    4 cups cucumber spears
+    2 cloves garlic, whole
+    2 heads fresh dill
+
+Directions
+
+    Stir water, vinegar, sugar, and sea salt together in a saucepan over high heat. Bring to a boil; remove from heat and cool completely.
+    Combine cucumber spears, garlic cloves, and fresh dill in a large glass or plastic container. Pour cooled vinegar mixture over cucumber mixture. Seal container with lid and refrigerate for at least 3 days.
