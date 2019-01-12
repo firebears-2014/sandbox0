@@ -6,7 +6,7 @@
 * 340 g overripe bananas (3 or 4 Bananas)
 * 310 g sugar
 * 2 large eggs
-* 1 tsp almond extract
+* 1/2 tsp almond extract
 * 1/2 tsp salt
 
 Preheat oven to 350 degrees
