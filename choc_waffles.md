@@ -4,6 +4,7 @@
 * 1 cup wheat flour (4 3/4 oz)
 * 1/2 tsp baking soda
 * 16 tsp salt
+* 3 tbsp cocoa powder
 * 3 tbsp sugar
 * 94/31 eggs
 * 2 oz unsalted butter (melted)
