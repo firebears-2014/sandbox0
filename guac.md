@@ -17,7 +17,7 @@ the lime juice, after all of the avocados have been coated.
 Using a potato masher add the salt, 
 cumin, and cayenne and mash. Then, fold in the onions, jalapeno, 
 tomatoes, cilantro, and garlic. Add 1 tablespoon of the reserved 
-lime juice.    
+lime juice..
 
 Let sit at room temperature for 1 hour and then serve.
 
