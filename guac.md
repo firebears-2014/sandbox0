@@ -5,6 +5,7 @@
 * 1/2 teaspoon kosher salt
 * 1/2 teaspoon ground cumin
 * 1/2 teaspoon cayenne
+* 1/2 cup lemon zest
 * 1/2 medium onion, diced
 * 1/2 jalapeno pepper, seeded and minced
 * 2 Roma tomatoes, seeded and diced
@@ -20,4 +21,3 @@ tomatoes, cilantro, and garlic. Add 1 tablespoon of the reserved
 lime juice..
 
 Let sit at room temperature for 1 hour and then serve.
-
