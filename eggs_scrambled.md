@@ -12,3 +12,5 @@
 5. Wait till eggs are firm but not overcooked
 6. Put eggs on plate
 7. Enjoy!
+
+8. Optional- you can also add other things like ham, sausage, or cheese
