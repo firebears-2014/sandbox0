@@ -12,3 +12,8 @@
 5. Wait till eggs are firm but not overcooked
 6. Put eggs on plate
 7. Enjoy!
+
+8. Optional- you can also add other ingrediants like:
+1. Protein- ham, sausage, cheese
+2. veggies- onions, bell peppers
+3. spice- spicy peppers, sriracha, hot sause, tabasco
