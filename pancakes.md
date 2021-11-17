@@ -10,6 +10,7 @@
 * 60g sour cream
 * 450g buttermilk
 * 2 eggs, separated
+* 3 cups sriracha
 
 
 1. Mix dry ingredients and oil.  Whip thoroughly.
